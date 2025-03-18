@@ -4,6 +4,9 @@ art commissions!!
 Hello github, ponytown, discord, or anyone else stumbling across this. i am an artist, and usually i wouldnt use this website... but im linking it anyway lol.
 i will be writing important information and stuff about commissions here!
 
+# CONTACT
+contact me via twitter or discord. if you already have my discord, msg me! if you dont have it, go to my profile where the art account is linked and message that account.
+
 
 # BASIC DETAILS
 1. prices are in USD
